@@ -1,3 +1,3 @@
 # MythwareCage
-MythwareCage(极域囚笼)
-内测中。。。
+MythwareCage
+https://www.bilibili.com/video/BV1eT421i7bz/
